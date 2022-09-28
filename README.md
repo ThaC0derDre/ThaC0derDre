@@ -1,4 +1,4 @@
-### Hi there 👋, you can call me Dre 😊
+### Hi there 👋, call me Dre 😊
 
 
 - 🔭 I’m currently working as an Indie Developer, and hoping to make my first big sale while making some great relationships!
